@@ -1,1 +1,1 @@
-😎By using the script you can H@CK OLD IG ID'S 🚀 🚀 🚀
+😎By using the script you can H@€K OLD IG ID'S 🚀 🚀 🚀
